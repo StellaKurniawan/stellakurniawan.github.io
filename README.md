@@ -1,1 +1,0 @@
-# stellakurniawan.github.io
